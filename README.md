@@ -4,6 +4,7 @@ Bingo Blitz Free Credits-Daily Gifts Link
 Bingo Blitz Free Credits
 
 **[👉👉CLICK HERE TO GET FREE LINK👈👈](https://megacrate.xyz/bingo%20blitz/)**
+
 **[👉👉CLICK HERE TO GET FREE LINK👈👈](https://megacrate.xyz/bingo%20blitz/)**
 
 Gift baskets
